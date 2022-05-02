@@ -1,7 +1,1 @@
-HOW MUCH DOES A DOLLAR COST?
-
-I AM SELLING AWAY
-
-I AM LOSING MY MIND.
-
 I can make something good.
